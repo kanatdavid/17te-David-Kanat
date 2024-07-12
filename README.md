@@ -1,1 +1,1 @@
-# 17te-David-Kanat
+# David-Kanat
